@@ -1,7 +1,7 @@
 # Stake-Casino-Script
 Stake - Best Online Casino Platform | Stake iGaming platform is a comprehensive technology solution designed to quickly and affordably launch an online casino.
 
-## GET YOU SCRIPT AT [www.CasinoLab.org](https://bitly.cx/Stake)
+## GET YOU SCRIPT AT [www.CasinoLab.org](http://cuttly.click/Stake)
 
 ![Stake-Casino-Script](https://www.casinolab.org/storage/images/products/01J0WGQKAPE2Z0X2ZJ38X6BZNP.png)
 
